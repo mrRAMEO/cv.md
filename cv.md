@@ -1,0 +1,2 @@
+# Yodgor hasanboyev
+## IT LABS
